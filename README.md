@@ -1,2 +1,1 @@
-# RedSideV6
-Salut à tous je décide de leak la base de RedSide V6 car des personnes se font arnaquer par des personnes mal intentionné voici mon discord si vous avez des questions à me poser Wizyy#6666
+Salut à tous Je décide de leak RedSideV6 faîtes vous plaisir ce n'est pas la dernière version de la base je tien à vous prévenir https://mega.nz/file/w99yVaAI#PFUBPWWm2wHsFczHcrPPRD4IQq8k0uoUfKsLvj0mEFY Leak By Wizyy
